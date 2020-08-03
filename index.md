@@ -1,3 +1,3 @@
-# Welcome to my blog
+# 이곳은 류니의 페이지
 
-I'm glad you are here. I plan to talk about ...
+음... 정말 하기 어렵군요.
